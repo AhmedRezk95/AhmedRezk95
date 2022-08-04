@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **arezk95@gmail.com**
 
-- ⚡ Fun fact **My cat is my mentor**
+- ⚡ Fun fact **The cat in this picture is de-moawing**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
